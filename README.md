@@ -12,7 +12,8 @@ My name is Yucan Lei. Just like everyone else, I was born in China and grew up i
 4. Peru
 5. Japan
 
-Now that I think about it, I do not have any "cool" photos of myself which is downright embarassing. 
+Now that I think about it, I do not have any "cool" photos of myself which is downright embarassing.
+So I found a meme as well as an ocean view picture I took last time, hope you enjoy. 
 ![yourphoto](IMG-5532.JPG)
 ![OCEAN](IMG-7357.jpg)
 
